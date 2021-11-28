@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Ashinpm
+- 🌱 I’m currently learning Electronics And Communication Engineering
+- 📫 How to reach me = ashinpm11@gmail.com
